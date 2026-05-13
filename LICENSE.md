@@ -1,4 +1,4 @@
-# 
+# best Obsidian for Windows Module | export-options + offline-access offers the most advanced Obsidian for Windows module, with export-options and offline-access. Ideal for Windows
 
 
 
